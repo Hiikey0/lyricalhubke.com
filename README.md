@@ -1,1 +1,1 @@
-# lyricalhubke.com
+# lyricalhub.com
